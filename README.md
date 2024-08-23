@@ -1,16 +1,13 @@
-## Hi there 👋
+## ola meu nome e paulo estevão ou se quiser me chama de paulo;)
 
-<!--
-**GDFRedbear323/GDFRedbear323** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+## eu gosto de jogar jogos de pc e videogame.
 
-Here are some ideas to get you started:
+## meus jogos favoritos são: five night at freddy's, bendy and the ink machine, poppy playtime.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+## meus animes fvoritos são: dragon ball, jujutsu kaisen, one piece.
+
+## se inscrevee no meu canal no youtube: GD_Fredbear༼ つ ◕_◕ ༽つ
+
+
+![](https://media1.tenor.com/m/8UntVSgyu6QAAAAC/gojo-satoru-satoru-gojo.gif)
+
